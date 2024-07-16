@@ -1,1 +1,3 @@
-hey nerds
+CarbonMC
+-----------------------------------
+https://carbonmc.net
