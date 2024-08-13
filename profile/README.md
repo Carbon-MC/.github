@@ -16,4 +16,4 @@
 ### YouTube: https://www.youtube.com/@OfficialCarbonMC/
 
 
-![E1zNNaXh](https://github.com/user-attachments/assets/eaf654a8-e30a-4eec-a0cb-e6ed79c990f9)
+![E1zNNaXh](https://i.imgur.com/UgPpvB1.png)
