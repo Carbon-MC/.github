@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### CarbonMC is a 1.20 based EarthSMP Minecraft Server
+### CarbonMC is a 1.20 based EarthSMP Minecraft Server owned by [Plasma Services](https://plasma.services/)
 
 
 ## Our Socials:
