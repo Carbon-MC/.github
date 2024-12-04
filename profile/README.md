@@ -9,7 +9,7 @@
 -----------------------------------
 ### Discord: https://discord.carbonmc.net/
 -----------------------------------
-### Twitter: https://x.com/CarbonMC_/
+### Twitter: https://x.com/PlayCarbonMC/
 -----------------------------------
 ### TikTok: https://www.tiktok.com/@carbonmc_/
 -----------------------------------
